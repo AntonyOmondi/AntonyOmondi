@@ -1,6 +1,6 @@
 ## - Hello, Hola, Bonjour, good people!!!! 👋👋
 
-## - **Antony Omondi** 👾 is my name 🤠
+## - ***Antony Omondi*** is my name. 👾🤠
 
 
 
